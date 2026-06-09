@@ -1,4 +1,4 @@
-# 
+# Mis à jour Wave plugins pour Mac OS | Top Wave plugins pour PC Windows. Avec exportation de données et traitement des paiements — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
